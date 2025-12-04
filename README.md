@@ -142,8 +142,8 @@ Refer to `report.docx` included in the repository for:
 ## 📬 Contact
 
 For feedback or queries:  
-📧 sharvanidhulipala@gmail.com  
-🔗 [http://www.linkedin.com/in/sharvani-dhulipala-47080b219]
+📧 vishaditi2003@gmail.com  
+🔗 www.linkedin.com/in/aditi-vishwakarma-722610253
 
 ---
 
