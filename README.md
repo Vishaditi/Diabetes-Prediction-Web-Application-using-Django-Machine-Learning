@@ -1,0 +1,1 @@
+# Diabetes-Prediction-Web-Application-using-Django-Machine-Learning
